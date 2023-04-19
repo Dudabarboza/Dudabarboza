@@ -1,6 +1,6 @@
 ### Hi there 👋
 👩🏾‍🦱- My name is Maria Eduarda Silva de Oliveira Barboza <br>
-👩🏾‍🎨- I´m a future interior designer
+👩🏾‍🎨- I´m a future interior designer <br>
 🏝️- I love the beach
 
 <div align="center">
